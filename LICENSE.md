@@ -1,4 +1,4 @@
-
+rivals elite Script offers the most advanced rivals Script, with silent aim and one-hit kill. Perfect for dominating any match.
 
 
 
